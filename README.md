@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fanza123
+- 👀 I’m interested in using phishing methods for certain websites 
+- 🌱 I’m currently learning hacking and tool 
+- 💞️ I’m looking to collaborate on the future of hacking not for illegal immigrants and purposes 
+- 📫 How to reach me i use my e-mail it is Iamfanza18@gmail.com 
